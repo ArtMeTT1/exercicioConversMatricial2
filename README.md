@@ -1,1 +1,1 @@
-exercicio 2
+exercicios 1, 2 e 3
